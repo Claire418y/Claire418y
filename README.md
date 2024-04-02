@@ -11,7 +11,5 @@ While I consider coding to be a fundamental skill, I'm putting effort into learn
 
 📬 For more detailed information about my portfolio and projects, feel free to check out the links below. Feel free to reach out anytime!
 Portfolio: https://claireyang.notion.site/Hi-I-am-Claire-f21455ded5d44c679a05029346aa7033?pvs=74
-LinkedIn: www.linkedin.com/in/claire-yang-888b75240
-
 
 
